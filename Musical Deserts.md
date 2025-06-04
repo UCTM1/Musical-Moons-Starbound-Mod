@@ -1,4 +1,4 @@
-[Abydos_Music - Middle Eastern Moon](https://pixabay.com/music/world-middle-east-ballad-188926/)\n
+[Abydos_Music - Middle Eastern Moon](https://pixabay.com/music/world-middle-east-ballad-188926/)
 [Abydos_Music - Middle Eastern Mystic Desert](https://pixabay.com/music/world-middle-eastern-mystic-desert-188927/)
 [ArtSlop_Flodur - Sahara Sunrise](https://pixabay.com/music/world-sahara-sunrise-11681/)
 [Beau-Tengû - Strange way](https://pixabay.com/music/beats-strange-way-260456/)
