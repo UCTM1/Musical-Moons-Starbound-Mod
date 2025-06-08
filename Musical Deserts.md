@@ -33,9 +33,3 @@
 [Beau-Tengû - Strange way](https://pixabay.com/music/beats-strange-way-260456/)
 
 [RibhavAgrawal - classical habibi intro](https://pixabay.com/music/adventure-classical-habibi-intro-199964/)
-
-
-
-
-
-[waelart - Night of Egypt](https://pixabay.com/music/world-night-of-egypt-4805/)
